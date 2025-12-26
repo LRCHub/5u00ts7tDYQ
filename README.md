@@ -1,4 +1,4 @@
-# Rick Astley – Together Forever (2022 - Remaster)
+# Rick Astley – Together Forever
 
 > **歌詞登録ステータス：同期歌詞あり**
 
